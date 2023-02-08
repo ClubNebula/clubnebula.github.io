@@ -1,6 +1,3 @@
-# Club Nebula 
-
-
 
 ## Yleistä
 Club Nebula on Ylivieskassa toimiva luonnontieteisiin sekä tähtivalokuvaukseen perehtynyt kerho, joka on avoin kaikille tähtitieteestä, fysiikasta, matematiikasta tai valokuvauksesta kiinnostuneille jäsenille. Kerhon puheenjohtajana on toiminut vuodesta 2017 alkaen Centria AMK:n tietotekniikan lehtori FM **Tero Niemi**.
