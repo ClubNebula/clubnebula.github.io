@@ -16,14 +16,13 @@ Kerhon puheenjohtajana on toiminut vuodesta 2017 alkaen Centria AMK:n tietotekni
 
 <br>
 
-
 ## Kokoontuminen
 Kerho kokoontuu kauden aikana (syys-touko) kerran kuukaudessa Centria ammattikorkeakoulu Oy:n Ylivieskan kampuksen tiloissa, osoitteessa Vierimaantie 7, 84100 Ylivieska. Kokoontumisaika on joka kuukauden ensimmäinen maanantai klo 18-20 (kokoustilaan ohjaus pääovelta klo 18).
 
 <br>
 
 ## Miten pääsee mukaan?
-Mikäli kerhon toiminta kiinnostaa ja haluat tulla mukaan, ota rohkeasti yhteys Teroon sähköpostilla: tero.niemi[ät]centria.fi Yhteydenoton jälkeen sinut voidaan lisätä Club Nebulan Whatsapp -ryhmään, jossa kerhon jäsenet aktiivisesti keskustelevat taivaan ilmiöistä, jakavat kuvia sekä ryhmässä tiedotetaan seuraavista kokouksista sekä niiden käsiteltävistä aiheista.
+Mikäli kerhon toiminta kiinnostaa ja haluat tulla mukaan, ota rohkeasti yhteys Teroon sähköpostilla: tero.niemi[ät]centria.fi Yhteydenoton jälkeen sinut voidaan lisätä Club Nebulan Whatsapp -ryhmään, jossa kerhon jäsenet aktiivisesti keskustelevat aihepiirien asioista. Ryhmässä myös tiedotetaan seuraavista kokouksista niissä käsiteltävistä aiheista.
 
 <br>
 
