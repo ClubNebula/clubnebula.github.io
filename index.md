@@ -17,7 +17,7 @@ Kerhon puheenjohtajana on toiminut vuodesta 2017 alkaen Centria AMK:n tietotekni
 <br>
 
 ## Kokoontuminen
-Kerho kokoontuu kauden aikana (syys-touko) kerran kuukaudessa Centria ammattikorkeakoulu Oy:n Ylivieskan kampuksen tiloissa, osoitteessa Vierimaantie 7, 84100 Ylivieska. Kokoontumisaika on joka kuukauden ensimmäinen maanantai klo 18-20 (kokoustilaan ohjaus pääovelta klo 18).
+Kerho kokoontuu kauden aikana (syys-touko) kerran kuukaudessa Centria ammattikorkeakoulu Oy:n Ylivieskan kampuksen tiloissa, osoitteessa Vierimaantie 7, 84100 Ylivieska. Kokoontumisaika on yleensä sillä viikolla, jolle sattuu kuun ensimmäinen maanantai klo 18-20 (kokoustilaan ohjaus pääovelta klo 18). Päivä kuitenkin vaihtelee paljon puheenjohtajan kiireiden vuoksi ja tarkka kokousaika ilmoitetaan aina Whatsapp-ryhmässä.
 
 <br>
 
