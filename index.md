@@ -1,4 +1,8 @@
 
+
+
+# <span style="color: red;">*** Kerhon toiminta on toistaiseksi tauolla 1.1.2024 alkaen. ***</span>
+
 ## Yleistä
 Club Nebula on Ylivieskassa toimiva luonnontiedekerho, joka on avoin kaikille, joita kiinnostaa jokin tai useampi seuraavista osa-alueista:
 * Tähtitiede
@@ -17,7 +21,7 @@ Kerhon puheenjohtajana on toiminut vuodesta 2017 alkaen Centria AMK:n tietotekni
 <br>
 
 ## Kokoontuminen
-Kerho kokoontuu kauden aikana (syys-touko) kerran kuukaudessa Centria ammattikorkeakoulu Oy:n Ylivieskan kampuksen tiloissa, osoitteessa Vierimaantie 7, 84100 Ylivieska. Kokoontumisaika on yleensä sillä viikolla, johon osuu kuukauden ensimmäinen maanantai. Päivä kuitenkin vaihtelee usein ja tarkka kokousaika ilmoitetaan aina Whatsapp-ryhmässä erikseen joka kuukausi.
+Kerho kokoontuu kauden aikana (syys-touko) kerran kuukaudessa Centria ammattikorkeakoulu Oy:n Ylivieskan kampuksen tiloissa, osoitteessa Vierimaantie 7, 84100 Ylivieska. Kokoontumisaika on joka kuukauden ensimmäinen maanantai klo 18-20 (kokoustilaan ohjaus pääovelta klo 18).
 
 <br>
 
